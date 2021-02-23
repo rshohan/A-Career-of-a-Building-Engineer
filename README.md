@@ -1,0 +1,2 @@
+# A-Career-of-a-Building-Engineer
+The daily expectation of a building engineer requires extreme patience in dealing with all of the building occupants. Whether it is teachers or students in a school, administrative personnel, tenants in a commercial office space or patients in a long term care facility, they all require special attention down to the finest details. During my longevity in the building management career, I have experienced first-hand the importance of this position. 
